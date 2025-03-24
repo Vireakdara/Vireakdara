@@ -33,4 +33,4 @@ Specializing in **Computer Vision** and advanced object detection, with hands-on
 - 🎾 Tennis player and jogging enthusiast.  
 - 🎨 Part-time graphic designer.  
 
-📫 **Reach Out**: [Email](mailto:lyvireakdara@gmail.com) | [LinkedIn](#) *(add your link!)*  
+📫 **Reach Out**: [Email](mailto:lyvireakdara@gmail.com) | [LinkedIn](https://www.linkedin.com/in/ly-vireak-dara/) *(add your link!)*  
